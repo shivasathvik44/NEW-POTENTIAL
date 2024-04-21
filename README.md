@@ -1,4 +1,4 @@
 # NEW-POTENTIAL
-<h1>this is shiva sathvik.<h1><br>
+this is shiva sathvik.<br>
 WELCOME
 currently i am studing b.tech
